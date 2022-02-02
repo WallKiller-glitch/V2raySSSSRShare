@@ -15,7 +15,8 @@ https://bywave.art/aff.php?aff=9357
 
 https://mxwljsq.com/auth/register?code=z6ce
 
-3）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
+3）350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9，服务态度良好。
+春节促销活动，所有套餐7折
 
 https://suying222.net/auth/register?code=Rpe0
 

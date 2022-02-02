@@ -61,6 +61,7 @@ https://www.mielink.com/register?aff=X8713K
 
 
 12）1200GB使用流量，20个在线客户端，解锁Netflix、Hulu，国内中转节点，IPLC专线节点，月最低9.9
+有日租体验版，一天仅需1.9，可以先尝试一番
 
 https://www.vpn200.net/auth/register?code=CuPjTxxR
 

@@ -43,7 +43,7 @@ https://catcloud.shop/auth/register?code=LyqN
 
 8）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
 
-https://fastlink-aff.com/auth/register?code=atkp
+https://fastlink-aff.com/auth/register?code=JW3m
 
 9）100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低9.9。
 

@@ -37,9 +37,10 @@ https://miaona.xyz/#/register?code=921B1vHk
 
 https://dashboard.coco355.com/user/register?code=gY9J
 
-7）（已关闭）无视特殊时期封禁和干扰，稳定奔放，晚高峰8K秒开，节点包括，港，台，美，日，新，韩，三网优化。提供Netflix共享，现在注册，所有套餐7折优惠，月付最低 2 块，免费节点无需付费每天签到即可白嫖。
+7)广移—广港IEPL专线线路，流媒体全解锁。节点包括，港，台，美，日，新加坡，印，德，英，澳大利亚，加拿大，阿根廷，俄罗斯，菲律宾，泰国，越南，巴西。冷/热门落地线路原生化，原生节点。稳定高速。
+针对亚洲采用内网优化方案
 
-https://catcloud.shop/auth/register?code=LyqN
+https://ss.mba/#/register?code=9pUxOjAR
 
 8）Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，现在注册即可白嫖三天体验套餐，白嫖优惠码：599_f3cz8bzm
 

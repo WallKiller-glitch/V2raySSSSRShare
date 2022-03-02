@@ -23,7 +23,7 @@ https://www.flyss.xyz/#/register?code=yC1OdB1q
 
 https://suying222.net/auth/register?code=Rpe0
 
-【4】高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。月付最低10块钱，现在注册即送六折六折六折优惠券。
+【4】高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。月付最低9.9块钱，现在注册即送六折六折六折优惠券。
 
 https://dashboard.coco355.com/user/register?code=gY9J
 

@@ -32,7 +32,7 @@ https://dashboard.coco355.com/user/register?code=gY9J
 https://v4speed.com/#/register?code=o7rMiHdj
 
 
-【6】原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。月最低 11.9 块
+【6】原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。月最低 11.9 块，享受100G大流量
 
 https://xrayport.net/#/register?code=hSouH7FS
 

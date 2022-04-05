@@ -78,7 +78,7 @@ https://ss.mba/#/register?code=9pUxOjAR
 
 https://fastlink-aff.com/auth/register?code=JW3m
 
-【16】全中转高速BGP G口高端机场，有专属 emby 服务器可看片，IPLC/IEPL专线承载，可保证无Qos.节点包括港，台，美，日，新加坡，泰国，英国，韩国，俄罗斯，印度，越南，土耳其。原生IP，当地流媒体解锁，带宽跑起来 8K 无压力。
+【16】（已停止运营）全中转高速BGP G口高端机场，有专属 emby 服务器可看片，IPLC/IEPL专线承载，可保证无Qos.节点包括港，台，美，日，新加坡，泰国，英国，韩国，俄罗斯，印度，越南，土耳其。原生IP，当地流媒体解锁，带宽跑起来 8K 无压力。
 
 https://portal.siseed.io/#/register?code=XjGKDyQ8
 

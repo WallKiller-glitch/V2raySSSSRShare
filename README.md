@@ -58,9 +58,9 @@ https://byw.tv/aff.php?aff=9357
 
 https://mxwljsq.com/auth/register?code=z6ce
 
-【8】名称：flyss
+【8】名称：teacat
 
-高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。月租最低 2 元，2元，2元！，只刷推特，fb等一个月就够用了
+高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。20元享受250G永久流量包，非常实惠
 
 https://www.flyss.xyz/#/register?code=yC1OdB1q
 
@@ -139,4 +139,10 @@ https://www.flyss.xyz/#/register?code=yC1OdB1q
 100+节点高端稳定大机场，“纯流量”计费机场，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，等。注册即可免费试用三天。仅需19元即可享受100G永久流量
 
 https://teacat.cloud/#/register?code=H3L7bmCz
+
+
+【20】名称：teacat
+高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。20元享受250G永久流量包，非常实惠
+
+https://www.flyss.xyz/#/register?code=yC1OdB1q
 

@@ -58,7 +58,7 @@ https://byw.tv/aff.php?aff=9357
 
 https://mxwljsq.com/auth/register?code=z6ce
 
-【8】名称：teacat
+【8】名称：flyss
 
 高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。20元享受250G永久流量包，永不过期，非常实惠
 

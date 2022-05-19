@@ -141,8 +141,3 @@ https://www.flyss.xyz/#/register?code=yC1OdB1q
 https://teacat.cloud/#/register?code=H3L7bmCz
 
 
-【20】名称：teacat
-高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。20元享受250G永久流量包，非常实惠
-
-https://www.flyss.xyz/#/register?code=yC1OdB1q
-

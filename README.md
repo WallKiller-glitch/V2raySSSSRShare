@@ -45,7 +45,7 @@ https://fastlink-aff.com/auth/register?code=JW3m
 
 多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
-https://byw.tv/aff.php?aff=9357
+https://console.bywa.art/aff.php?aff=9357
 
 
 【性价比专区】

@@ -74,7 +74,7 @@ https://suying222.net/auth/register?code=Rpe0
 
 【10】名称：CoCoCloud
 
-高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。月付最低9.9块钱，现在注册即送六折六折六折优惠券。
+高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。月付最低12块钱，最新推出年付五折优惠，折后仅需48元/年。
 
 https://dashboard.coco355.com/user/register?code=gY9J
 

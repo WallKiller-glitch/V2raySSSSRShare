@@ -107,7 +107,7 @@ https://youyun222.net/auth/register?code=3hQ2
 【15】名称：element
 
 全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，月最低 8 块钱，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
-月最低8元
+月最低10元
 
 https://ivt.yuansu.app/2pEZT8J0
 
@@ -130,7 +130,7 @@ https://byw.tv/aff.php?aff=9357
 
 【18】名称：flyss
 
-高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。250G流量包仅需20元
+高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。250G永久流量包仅需20元
 
 https://www.flyss.xyz/#/register?code=yC1OdB1q
 

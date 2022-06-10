@@ -89,7 +89,7 @@ https://v4speed.com/#/register?code=o7rMiHdj
 
 原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。月最低 11.9 块，享受100G大流量
 
-https://xrayport.net/#/register?code=hSouH7FS
+https://xrayport.org/#/register?code=hSouH7FS
 
 
 【13】名称：极客云

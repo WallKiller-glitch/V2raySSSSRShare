@@ -70,7 +70,7 @@ https://www.flyss.xyz/#/register?code=yC1OdB1q
 
 春节促销活动，所有套餐7折
 
-https://suying222.net/auth/register?code=Rpe0
+https://suying00.com/auth/register?code=Rpe0
 
 【10】名称：CoCoCloud
 

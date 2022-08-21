@@ -111,7 +111,7 @@ https://youyun222.net/auth/register?code=3hQ2
 全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，月最低 8 块钱，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
 月最低10元
 
-https://ivt.yuansu.app/2pEZT8J0
+https://api.yuansu.uk/v1/guest/i/2pEZT8J0
 
 【15】名称：筋斗云
 

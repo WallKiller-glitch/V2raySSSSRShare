@@ -60,13 +60,7 @@ https://console.bywa.art/aff.php?aff=9357
 
 https://mxwljsq.com/auth/register?code=z6ce
 
-【7】名称：flyss
-
-高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。仅需15元享受200G大流量，非常实惠
-
-https://www.flyss.xyz/#/register?code=yC1OdB1q
-
-【8】名称：速鹰666
+【7】名称：速鹰666
 
 350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9，服务态度良好。
 
@@ -74,46 +68,46 @@ https://www.flyss.xyz/#/register?code=yC1OdB1q
 
 https://suying00.com/auth/register?code=Rpe0
 
-【9】名称：CoCoCloud
+【8】名称：CoCoCloud
 
 高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。月付最低12块钱，最新推出年付五折优惠，折后仅需48元/年。
 
 https://dashboard.coco355.com/user/register?code=gY9J
 
-【10】名称：v4speed
+【9】名称：v4speed
 
 全IPLC专线大机场，G口带宽，全部原生IP，节点包括，港，台，美，日，新加坡，韩，菲律宾，越南，泰国，印度，德国，法国，英国，阿根廷，流媒体全解锁。注册即可白嫖。免费试用。月最低5.99。
 
 https://v4speed.com/#/register?code=o7rMiHdj
 
 
-【11】名称：Xray加速
+【10】名称：Xray加速
 
 原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。月最低 11.9 块，季付仅需35.70，享受100G大流量
 
 https://xrayport.org/#/register?code=hSouH7FS
 
 
-【12】名称：极客云
+【11】名称：极客云
 
 100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://jike138.net/auth/register?code=8kiY
 
-【13】名称：优云666
+【12】名称：优云666
 
 150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
 
 https://youyun222.net/auth/register?code=3hQ2
 
-【14】名称：element
+【13】名称：element
 
 全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，月最低 8 块钱，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
 月最低10元
 
 https://api.yuansu.uk/v1/guest/i/2pEZT8J0
 
-【15】名称：筋斗云
+【14】名称：筋斗云
 
 1200GB使用流量，20个在线客户端，解锁Netflix、Hulu，国内中转节点，IPLC专线节点，月最低9.9 有日租体验版，一天仅需1.9，可以先尝试一番
 
@@ -124,19 +118,14 @@ https://www.vpn200.net/auth/register?code=CuPjTxxR
 
 【特点】：永不过期，即开即用，用完为止，价格也非常合理，非常适合偶尔爬墙，不喜欢有时间限制的童靴
 
-【16】名称：ByWave
+【15】名称：ByWave
 
 高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需100元即可购买永久套餐（流量不重置）。
 
 https://byw.tv/aff.php?aff=9357
 
-【17】名称：flyss
 
-高质量v2ray大机场，注册即可白嫖三天，节点包括，港，台，美，日，新，韩，英国。流媒体解锁，畅游海外。250G永久流量包仅需20元
-
-https://www.flyss.xyz/#/register?code=yC1OdB1q
-
-【18】名称：teacat
+【16】名称：teacat
 
 100+节点高端稳定大机场，“纯流量”计费机场，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，等。注册即可免费试用三天。仅需19元即可享受100G永久流量
 

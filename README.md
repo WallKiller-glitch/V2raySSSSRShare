@@ -20,7 +20,7 @@ https://suyunti.com/auth/register?code=LzTA
 
 最全地区节点高端SS专线大机场，原生IP，倍率低，不限速，节点包括港，台，美，日，新，俄，泰国，加拿大，印尼，印度，以色列，伊朗，约旦，土耳其，阿联酋，沙特阿拉伯，孟加拉国，法国，匈牙利，卢森堡，捷克，澳大利亚，澳门，英国，德国，荷兰，瑞士, 瑞典，挪威，菲律宾，越南，阿根廷，乌拉圭，哥伦比亚，委内瑞拉，韩国，马来西亚，柬埔寨，尼泊尔，乌克兰，巴西，智利，南非，摩洛哥，肯尼亚，突尼斯，埃及，阿塞拜疆，哈萨克斯坦，吉尔吉斯斯坦，巴基斯坦，新西兰，奥地利，意大利，比利时，爱尔兰，立陶宛，希腊，波兰，蒙古国，保加利亚，克罗地亚，北马其顿，塞浦路斯，罗马尼亚，斯洛文尼亚，阿尔巴尼亚，波黑共和国，墨西哥，巴拿马，哥斯达黎加，白俄罗斯，马恩岛，秘鲁，西班牙，葡萄牙，丹麦，芬兰，冰岛，塞尔维亚，拉脱维亚，尼日利亚，格鲁吉亚等。全球流媒体解锁， 共 80+ 个国家和地区，你能想到的国家和地区这里都有，真正的原生IP，相当于周游世界了。线路包括，南部广港，东部沪日，北部京德 BGP专线，特殊时期高速稳定，倍率低不限速，可单独定制套餐独享IP，一对一技术支持。
 
-https://tagss.pro/#/register?code=uymBgx8S
+https://tagss.pro#/register?invite=uymBgx8S
 
 
 【2】名称：Gatern
@@ -35,7 +35,7 @@ https://shuttle.gt-in.com/aff.php?aff=2437
 
 广移—广港IEPL专线线路，流媒体全解锁。节点包括，港，台，美，日，新加坡，印，德，英，澳大利亚，加拿大，阿根廷，俄罗斯，菲律宾，泰国，越南，巴西。冷/热门落地线路原生化，原生节点。稳定高速。 针对亚洲采用内网优化方案。最新推出天卡，1元/天
 
-https://ss.mba/#/register?code=9pUxOjAR
+https://i.ss01.net/#/register?code=9pUxOjAR
 
 【4】名称：FASTLINK
 
@@ -43,7 +43,7 @@ Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC
 
 https://fastlink-aff.com/auth/register?code=JW3m
 
-【5】名称：ByWave
+【5】（已失效）名称：ByWave
 
 多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
 
@@ -64,15 +64,15 @@ https://mxwljsq.com/auth/register?code=z6ce
 
 350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9，服务态度良好。
 
-春节促销活动，所有套餐7折
+一年、二年，72折优惠码：a1001 半年，77折优惠码：b1001
 
 https://suying00.com/auth/register?code=Rpe0
 
 【8】名称：CoCoCloud
 
 高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。月付最低12块钱，最新推出年付五折优惠，折后仅需48元/年。
-
-https://dashboard.coco355.com/user/register?code=gY9J
+现在注册可获得7折优惠券一张  
+https://coco188.shop/user/register?code=gY9J
 
 【9】名称：v4speed
 
@@ -85,18 +85,18 @@ https://v4speed.com/#/register?code=o7rMiHdj
 
 原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。月最低 11.9 块，季付仅需35.70，享受100G大流量
 
-https://xrayport.org/#/register?code=hSouH7FS
+https://xrayport.org/index.php/#/register?code=hSouH7FS
 
 
 【11】名称：极客云
 
-100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。截止2022/10/7一年、二年，72折优惠码：a1001。半年，77折优惠码：b1001
+100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。一年、二年，72折优惠码：a1001。半年，77折优惠码：b1001
 
-https://jike138.net/auth/register?code=8kiY
+https://jike391.com/auth/register?code=8kiY
 
 【12】名称：优云666
 
-150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。
+150+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。一年、二年，72折优惠码：a1001。半年，77折优惠码：b1001
 
 https://youyun222.net/auth/register?code=3hQ2
 
@@ -118,7 +118,7 @@ https://www.vpn200.net/auth/register?code=CuPjTxxR
 
 【特点】：永不过期，即开即用，用完为止，价格也非常合理，非常适合偶尔爬墙，不喜欢有时间限制的童靴
 
-【15】名称：ByWave
+【15】（已失效）名称：ByWave
 
 高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需100元即可购买永久套餐（流量不重置）。
 

@@ -9,10 +9,11 @@
 
 【特点】：老牌高端机场，两会、国庆等特殊时期比较稳定，节点选择众多，价格合理，售后有保证，适合需要经常翻墙的人群
 
-【新！！！】名称：速云梯
-150+节点的高级机场，IPCL专线，节点包括港，台，新加坡，俄罗斯，日本，线路稳定，特殊时期依然保持流畅运行，流媒体解锁，稳定高速。现在联系老板可免费白嫖旗舰版大流量套餐一个月，月最低11.9。
+【新！！！】名称：TapFrog
 
-https://suyunti.com/auth/register?code=LzTA
+HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 8.8元。注册即可白嫖体验，好用再买不迟。
+
+https://tapfog.com/#/register?code=TCEXhxI9
 
 
 
@@ -30,12 +31,12 @@ https://tagss.pro#/register?invite=uymBgx8S
 https://shuttle.gt-in.com/aff.php?aff=2437
 
 	
+【3】名称：速云梯
 
-【3】名称：ssLinks
+150+节点的高级机场，IPCL专线，节点包括港，台，新加坡，俄罗斯，日本，线路稳定，特殊时期依然保持流畅运行，流媒体解锁，稳定高速。现在联系老板可免费白嫖旗舰版大流量套餐一个月，月最低11.9。
 
-广移—广港IEPL专线线路，流媒体全解锁。节点包括，港，台，美，日，新加坡，印，德，英，澳大利亚，加拿大，阿根廷，俄罗斯，菲律宾，泰国，越南，巴西。冷/热门落地线路原生化，原生节点。稳定高速。 针对亚洲采用内网优化方案。最新推出天卡，1元/天
+https://suyunti.com/auth/register?code=LzTA
 
-https://i.ss01.net/#/register?code=9pUxOjAR
 
 【4】名称：FASTLINK
 
@@ -43,9 +44,10 @@ Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC
 
 https://fastlink-aff.com/auth/register?code=JW3m
 
-【5】（已失效）名称：ByWave
+【5】名称：SPEEDCAT
 
-多年老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，实打实流量机场。
+免费体验优惠码 free，注册即可白嫖三天
+高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。
 
 https://console.bywa.art/aff.php?aff=9357
 

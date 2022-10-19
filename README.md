@@ -11,7 +11,8 @@
 
 【新！！！】名称：TapFrog
 
-HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 8.8元。注册即可白嫖体验，好用再买不迟。
+注册完成即可免费体验
+HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。月最低 8.8元。
 
 https://tapfog.com/#/register?code=TCEXhxI9
 
@@ -132,5 +133,9 @@ https://byw.tv/aff.php?aff=9357
 100+节点高端稳定大机场，“纯流量”计费机场，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，等。注册即可免费试用三天。仅需19元即可享受100G永久流量
 
 https://teacat.cloud/#/register?code=H3L7bmCz
+（如果访问较慢请访问
+https://teacat1.com/#/register?code=H3L7bmCz
+
+https://teacat2.com/#/register?code=H3L7bmCz）
 
 

@@ -50,7 +50,7 @@ https://fastlink-aff.com/auth/register?code=JW3m
 免费体验优惠码 free，注册即可白嫖三天
 高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。
 
-https://console.bywa.art/aff.php?aff=9357
+https://speedcat-aff.com/auth/register?code=TZRd
 
 
 【性价比专区】
@@ -133,7 +133,8 @@ https://byw.tv/aff.php?aff=9357
 100+节点高端稳定大机场，“纯流量”计费机场，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，等。注册即可免费试用三天。仅需19元即可享受100G永久流量
 
 https://teacat.cloud/#/register?code=H3L7bmCz
-（如果访问较慢请访问
+（
+如果访问较慢请访问
 
 https://teacat1.com/#/register?code=H3L7bmCz
 

@@ -95,7 +95,7 @@ https://xrayport.org/index.php/#/register?code=hSouH7FS
 
 100+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，月最低11.9。一年、二年，72折优惠码：a1001。半年，77折优惠码：b1001
 
-https://jike391.com/auth/register?code=8kiY
+https://jike251.xyz/auth/register?code=8kiY
 
 【12】名称：优云666
 

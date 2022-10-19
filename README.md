@@ -17,6 +17,13 @@ HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，
 https://tapfog.com/#/register?code=TCEXhxI9
 
 
+【新！！！】名称：白茶云
+
+高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需2元即可购买10G永久流量包。
+
+https://befweb.net/#/register?code=t5WWC6t5
+
+
 
 【1】名称：TAG
 
@@ -121,11 +128,11 @@ https://www.vpn200.net/auth/register?code=CuPjTxxR
 
 【特点】：永不过期，即开即用，用完为止，价格也非常合理，非常适合偶尔爬墙，不喜欢有时间限制的童靴
 
-【15】（已失效）名称：ByWave
+【15】名称：白茶云
 
-高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需100元即可购买永久套餐（流量不重置）。
+高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需12元即可购买100G永久流量包。
 
-https://byw.tv/aff.php?aff=9357
+https://befweb.net/#/register?code=t5WWC6t5
 
 
 【16】名称：teacat

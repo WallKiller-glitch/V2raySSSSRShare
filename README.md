@@ -19,7 +19,7 @@ https://tapfog.com/#/register?code=TCEXhxI9
 
 【新！！！】名称：白茶云
 
-高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需2元即可购买10G永久流量包。
+高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需12元即可购买120G永久流量包。
 
 https://befweb.net/#/register?code=t5WWC6t5
 

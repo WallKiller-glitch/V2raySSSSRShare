@@ -17,11 +17,11 @@ HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，
 https://tapfog.com/#/register?code=TCEXhxI9
 
 
-【新！！！】名称：白茶云
+【新！！！】名称：Godetia
 
-高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需12元即可购买120G永久流量包。
+全G口IPLC，SS协议国际不过墙专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦，马来西亚等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等解锁，低延迟、高速。如丝般顺滑。畅游海外。
 
-https://befweb.net/#/register?code=t5WWC6t5
+https://ssltd.xyz/#/register?code=jJmOmbyK
 
 
 

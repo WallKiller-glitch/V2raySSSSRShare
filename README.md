@@ -125,12 +125,6 @@ https://www.vpn200.net/auth/register?code=CuPjTxxR
 
 【特点】：永不过期，即开即用，用完为止，价格也非常合理，非常适合偶尔爬墙，不喜欢有时间限制的童靴
 
-【15】名称：白茶云
-
-高端老牌机场，全IPLC 5G口带宽，节点包括港台美日新，原生IP，带宽跑满速，流媒体解锁，实打实流量机场，仅需12元即可购买120G永久流量包。
-
-https://befweb.net/#/register?code=t5WWC6t5
-
 
 【16】名称：teacat
 

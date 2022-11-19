@@ -52,7 +52,7 @@ https://fastlink-aff.com/auth/register?code=JW3m
 【5】名称：SPEEDCAT
 
 免费体验优惠码 free，注册即可白嫖三天
-高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。
+高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。月最低***5元***
 
 https://speedcat-aff.com/auth/register?code=TZRd
 

@@ -38,37 +38,44 @@ Clash 是一个使用 Go 语言编写，基于规则的跨平台代理软件核�
 
 
 拷贝后，我们在Clash里面添加订阅
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/6_11yfjrh.png)
  
 
 订阅添加后，我们选择下载的订阅
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/7_tisebo.png)
 
  
 
 然后在代理页面选择节点
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/8_xxj3rp.png)
 
  
 
 选择你需要使用的节点
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/9_18dv04s.png)
 
- 
+
 
 节点选好后如下图所示
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/10_prq00a.png)
 
- 
+
 
 然后开始链接
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/11_1p8ggcv.png)
 
  
 
 链接成功后如下图所示，最后就可以开始上网冲浪
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/win/12_1f4uozz.png)
 
- 
+
 
 该客户端仅支持Windows 10 以上系统，但是也可能有BUG，不一定兼容市面上所有操作系统，如果此客户端您的系统无法使用（比如连上后翻墙翻不了），请更换其它Windows客户端

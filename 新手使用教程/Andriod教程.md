@@ -16,12 +16,12 @@ Clash for Android是基于开源代理软件项目Clash开发的安卓适配版�
 👉 [Github下载原版](https://github.com/Kr328/ClashForAndroid/releases)（此代理软件为Github开源项目，有需要可自行在Github下载最新版，部分网络可能下载较慢或者打不开网页，如有必要请连接代理下载）
 
 
-下载APP后一定要记得安装！！！
+**下载APP后一定要记得安装！！！**
 
-使用教程
+# 使用教程
 
 打开APP后，点击主页的“配置”
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/1.jpg)
 
 
 

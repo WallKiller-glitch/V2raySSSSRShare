@@ -28,57 +28,55 @@ Clash for Android是基于开源代理软件项目Clash开发的安卓适配版�
 
 点击右上角的“➕”号
 
-https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/2.jpg
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/2.jpg)
 
 
 点击“从URL导入”
 
-https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/3.jpg
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/3.jpg)
 
 
 然后我们去【用户中心】主页拷贝订阅地址
 
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/4.png)
 
-
-
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/5.png)
 
 
 
 在APP上添加订阅，如下图所示，名称写：TAG，URL输入框请粘贴您拷贝的订阅链接，自动更新选项推荐设置为1440分钟（24小时），意思就是每24小时自动更新一次订阅，填写完后点击右上角按钮保存。
 
-
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/6.jpg)
 
 
 选择加载后的配置，然后返回主界面
 
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/7.jpg)
 
 
 
 点击启动
 
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/8.jpg)
 
 
 
 
 第一次使用，会弹出连接请求弹窗，一定要点“确定”，点取消将会无法使用
 
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/9.jpg)
 
 
 
 连接成功后就如下图所示，然后就可以进去代理界面去选择您想使用的节点了
 
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/10.jpg)
 
 
 
 点击“手动切换”选择你需要使用的节点，别按照我教程盲目选择，我这只是示范
 
-
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/11.jpg)
 
 
 

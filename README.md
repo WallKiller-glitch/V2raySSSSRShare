@@ -67,7 +67,7 @@ https://speedcat-aff.com/auth/register?code=TZRd
 
 全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。月最低***6块！6块！6快！平均仅需0.2元/天***。
 
-https://mxwljsq.com/auth/register?code=z6ce
+https://mxwljsq.top/auth/register?code=z6ce
 
 【7】名称：速鹰666
 

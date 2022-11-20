@@ -25,24 +25,24 @@ Shadowrocket是一个性能优异的iOS全局代理软件
 
 进商店搜索：Shadowrocket 图标是一个小火箭的LOGO，别下错了
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/2.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/2.jpg)
 
 
 打开APP后，点击右上角的“➕”号
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/3.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/3.jpg)
 
 
 
 点击“类型”进去选择
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/4.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/4.jpg)
 
 
 
 选择“Subscribe”，选择后会自动返回上一页
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/5.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/5.jpg)
 
 
 
@@ -59,55 +59,55 @@ Shadowrocket是一个性能优异的iOS全局代理软件
 
 URL那里粘贴你拷贝的订阅链接，备注写：TAG，然后点“完成”就自动返回APP主界面了
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/8.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/8.jpg)
 
 
 
 返回到主页面后先别着急用，需要启用自动更新。先点击设置按钮
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/9.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/9.jpg)
 
 
 
 点击订阅选项
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/10.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/10.jpg)
 
 
 
 开启“打开时更新”与“自动后台更新”两个开关
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/11.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/11.jpg)
 
 
 
 设置好后返回到主页，点击“全局路由”
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/12.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/12.jpg)
 
 
 
 选择“代理”
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/13.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/13.jpg)
 
 
 
 返回到主页面就可以选择自己需要的节点了，选择好后点击上面的连接开关
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/14.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/14.jpg)
 
 
 
 出现弹窗后，点允许，这里不能点其他的，否则将无法使用！！！
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/15.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/15.jpg)
 
 
 
 当看到第一个选项变成节点名称，右边的开关点亮后就说明已经成功连接代理了。您可以愉悦地在信息高速路飞车了！
 
-![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/16.png)
+![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/16.jpg)
 
 
 

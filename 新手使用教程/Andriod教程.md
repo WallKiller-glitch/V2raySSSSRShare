@@ -20,21 +20,20 @@ Clash for Android是基于开源代理软件项目Clash开发的安卓适配版�
 
 # 使用教程
 
+
 打开APP后，点击主页的“配置”
+
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/1.jpg)
-
-
 
 
 点击右上角的“➕”号
 
-
-
+https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/2.jpg
 
 
 点击“从URL导入”
 
-
+https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/andriod/3.jpg
 
 
 

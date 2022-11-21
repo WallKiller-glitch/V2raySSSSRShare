@@ -87,7 +87,7 @@ https://coco188.shop/user/register?code=gY9J
 
 【9】名称：Xray加速
 
-原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。月最低 11.9 块，季付仅需35.70，享受100G大流量
+原生IEPL专线国际大机场，节点包括，港，台，美，日，韩，新加坡，越南，英国，德国，土耳其。 1G口带宽稳定不限速，流媒体全解锁。***月最低350G/25元***
 
 https://xrayport.org/index.php/#/register?code=hSouH7FS
 

@@ -78,7 +78,7 @@ Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC
 
 一年、二年，72折优惠码：a1001 半年，77折优惠码：b1001
 
-[速鹰666官方网址入口](https://suying00.com/auth/register?code=Rpe0)
+[速鹰官方网址入口](https://suying00.com/auth/register?code=Rpe0)
 
 【8】名称：CoCoCloud
 

@@ -119,7 +119,7 @@ Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC
 
 100+节点高端稳定大机场，含月付，也有“流量包”计费，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。***注册即可免费试用三天，最低100G/12元。***
 
-👉[teacat官方网址入口1](https://teacat.cloud/#/register?code=H3L7bmCz)  
+👉[teacat官方网址入口1（需代理）](https://teacat.cloud/#/register?code=H3L7bmCz)  
 👉[teacat官方网址入口2](https://teacat1.com/#/register?code=H3L7bmCz)  
 👉[teacat官方网址入口3](https://teacat2.com/#/register?code=H3L7bmCz)
 

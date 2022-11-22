@@ -84,7 +84,7 @@ Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC
 
 高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。***月付最低19块钱，最新推出年付五折优惠，折后仅需48元/年。***
 现在注册可获得7折优惠券一张  
-👉[CoCoCloud官方网址入口(]https://coco188.shop/user/register?code=gY9J)
+👉[CoCoCloud官方网址入口](https://coco188.shop/user/register?code=gY9J)
 
 
 【9】名称：极客云

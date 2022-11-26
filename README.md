@@ -44,7 +44,6 @@ HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，
 👉[TAG官方网址入口](https://tagss.pro#/register?invite=uymBgx8S)
 
 
-
 ## 二、Godetia
 
 全G口IPLC，SS协议国际不过墙专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦，马来西亚等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等解锁，低延迟、高速。如丝般顺滑。畅游海外。
@@ -97,7 +96,8 @@ Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC
 ## 九、CoCoCloud
 
 高端机场，节点包括港台美日新加坡韩国英国法国，原生IP，带宽跑满速，流媒体解锁。***月付最低19块钱，最新推出年付五折优惠，折后仅需48元/年。***
-现在注册可获得7折优惠券一张  
+现在注册可获得7折优惠券一张
+
 👉[CoCoCloud官方网址入口](https://coco188.shop/user/register?code=gY9J)
 
 

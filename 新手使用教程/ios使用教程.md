@@ -46,7 +46,7 @@ Shadowrocket是一个性能优异的iOS全局代理软件
 
 
 
-然后我们去【用户中心】主页拷贝订阅地址
+然后我们去【用户中心】主页拷贝订阅地址（**每个机场主页可能不一样，在对应的机场菜单里自行拷贝订阅地址即可**）
 
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/6.png)
 

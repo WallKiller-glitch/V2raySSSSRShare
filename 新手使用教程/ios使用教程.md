@@ -57,7 +57,7 @@ Shadowrocket是一个性能优异的iOS全局代理软件
 
 
 
-URL那里粘贴你拷贝的订阅链接，备注写：TAG，然后点“完成”就自动返回APP主界面了
+URL那里粘贴你拷贝的订阅链接，然后点“完成”就自动返回APP主界面了
 
 ![image](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/img/ios/8.jpg)
 

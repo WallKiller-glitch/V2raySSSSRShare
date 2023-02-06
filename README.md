@@ -83,7 +83,7 @@ Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC
 
 全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。月最低***6块！6块！6快！平均仅需0.2元/天***。
 
-👉[猫熊官方网址入口](https://mxwljsq.top/auth/register?code=z6ce)
+👉[猫熊官方网址入口](https://mxwljsq.top/auth/register?code=z6ce) 
 
 ## 八、速鹰666
 

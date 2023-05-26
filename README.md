@@ -95,7 +95,7 @@
 ## 十、element
 
 &emsp;&emsp;全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
-***月最低10元（使用促销码 BackToSchool 获得9折返校优惠!）***
+***月最低10元（使用促销码 anniversary享受所有订阅方案的 25% 折扣!）***
 
 👉[element官方网址入口](https://api.yuansu.uk/v1/guest/i/2pEZT8J0)
 

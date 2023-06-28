@@ -89,7 +89,7 @@
 
 一年、二年，72折优惠码：a1001 半年，77折优惠码：b1001
 
-👉[极客云官方网址入口](https://jike998.xyz/auth/register?code=8kiY)
+👉[极客云官方网址入口](https://jikebb.xyz/auth/register?code=8kiY)
 
 
 ## 十、element

@@ -32,11 +32,11 @@
 👉[TAG官方网址入口](https://tagss01.pro#/register?invite=uymBgx8S)
 
 
-## 二、Godetia
+## 二、FsCloud
 
-&emsp;&emsp;全G口IPLC，SS协议国际不过墙专线，8线BGP入口，全球内网，原生节点。节点包括，港，台，美，日，新加坡，巴西，德国，澳大利亚，新西兰，英国，俄罗斯，荷兰，加拿大，阿根廷，菲律宾，泰国，土耳其，巴基斯坦，马来西亚等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等解锁，低延迟、高速。如丝般顺滑。畅游海外。
+&emsp;&emsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量，白菜价最低月付3元350G
 
-👉[Godetia官方网址入口](https://ssltd.xyz/#/register?code=jJmOmbyK)
+👉[FsCloud官方网址入口](https://dash.996cloud.top/#/register?code=rsFPPHnq)
 
 
 ## 三、TapFog

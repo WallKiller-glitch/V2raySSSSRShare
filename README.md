@@ -96,13 +96,13 @@
 
 一年、二年，72折优惠码：a1001 半年，77折优惠码：b1001
 
-👉[极客云官方网址入口](https://jikebb.xyz/auth/register?code=8kiY)
+👉[极客云官方网址入口](https://jike467.xyz/auth/register?code=8kiY)
 
 
 ## 十一、element
 
 &emsp;&emsp;全大陆BGP专线线路，三网优化高端机场，SS协议加密传输，节点包括，港，台，日，新，美，德，意大利，英，荷兰，瑞士，以色列。流媒体解锁，稳定高速。
-***月最低10元（使用促销码 anniversary享受所有订阅方案的 25% 折扣!）***
+***月最低10元（周期套餐八折优惠码：20230927A，按量计费七折优惠码：20230927B）***
 
 👉[element官方网址入口](https://api.yuansu.uk/v1/guest/i/2pEZT8J0)
 

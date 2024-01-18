@@ -78,7 +78,7 @@
 
 &emsp;&emsp;免费体验优惠码 free，注册即可白嫖三天,高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。月最低**使用优惠码 12345678 就可以享有全场打8折优惠**
 
-👉[SPEEDCAT官方网址入口](https://speedcat-aff.com/auth/register?code=TZRd)
+👉[SPEEDCAT官方网址入口](https://speedcat-aff.com/auth/register?code=wEnH)
 
 
 ## 九、[速鹰666](https://suying00.com/auth/register?code=Rpe0)

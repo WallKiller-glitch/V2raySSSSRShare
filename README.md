@@ -74,11 +74,11 @@
 👉[FASTLINK官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
 
-## 八、[SPEEDCAT](https://speedcat-aff.com/auth/register?code=TZRd)
+## 八、[智连云](https://888tizi.com/#/register?code=7wOIOjnh)
 
-&emsp;&emsp;免费体验优惠码 free，注册即可白嫖三天,高端全专线 IPLC，无倍率套路，原生节点大机场，节点包括，港，台，美，日，新加坡，英国，马来西亚，阿根廷，土耳其。Netflix ,Disney+, hulu等当地流媒体全解锁。月最低**使用优惠码 12345678 就可以享有全场打8折优惠**
+&emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。**月最低14，享受120G大流量**
 
-👉[SPEEDCAT官方网址入口](https://speedcat-aff.com/auth/register?code=wEnH)
+👉[智连云官方网址入口](https://888tizi.com/#/register?code=7wOIOjnh)
 
 
 ## 九、[速鹰666](https://sy7770.com/auth/register?code=Rpe0)

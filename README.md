@@ -81,22 +81,22 @@
 👉[SPEEDCAT官方网址入口](https://speedcat-aff.com/auth/register?code=wEnH)
 
 
-## 九、[速鹰666](https://suying00.com/auth/register?code=Rpe0)
+## 九、[速鹰666](https://sy7770.com/auth/register?code=Rpe0)
 
 &emsp;&emsp;350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，***月最低19.9，1年、2年套餐，6.9折优惠代码：XN2023***，客服响应速度非常快，服务态度好。
 
 一年、二年，72折优惠码：a1001 半年，77折优惠码：b1001
 
-👉[速鹰官方网址入口](https://suying00.com/auth/register?code=Rpe0)
+👉[速鹰官方网址入口](https://sy7770.com/auth/register?code=Rpe0)
 
 
-## 十、[极客云](https://jike467.xyz/auth/register?code=8kiY)
+## 十、[极客云](https://jikeq87.xyz/auth/register?code=8kiY)
 
 &emsp;&emsp;350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，***月最低19.9，一年、二年，8折优惠码：ac888***，客服响应速度非常快，服务态度好。
 
 一年、二年，72折优惠码：a1001 半年，77折优惠码：b1001
 
-👉[极客云官方网址入口](https://jike48.xyz/auth/register?code=8kiY)
+👉[极客云官方网址入口](https://jikeq87.xyz/auth/register?code=8kiY)
 
 
 ## 十一、[element](https://api.yuansu.uk/v1/guest/i/2pEZT8J0)

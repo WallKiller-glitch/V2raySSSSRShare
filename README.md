@@ -69,7 +69,7 @@
 
 ## 七、[MESL](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
-&emsp;&emsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。**新年折扣15%至3月29号**
+&emsp;&emsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。**清明节85折优惠，优惠码：15%OFF**
 
 👉[FASTLINK官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
 

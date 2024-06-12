@@ -8,7 +8,7 @@ Clash 是一个使用 Go 语言编写，基于规则的跨平台代理软件核�
 
 应用下载
 
-👉 [大陆网盘下载](https://tagcloud.lanzoue.com/icE800yez8ah)（此网盘无需挂代理，大陆网络可以直接打开）
+👉 [大陆网盘下载](https://tagcloud.lanzoue.com/iwyP51dkexsf)（此网盘无需挂代理，大陆网络可以直接打开）
 
 👉 [国外网盘下载](https://note.boccc.co/download/New/CFW-CN.rar)（由于下载地址服务器位于欧洲，部分网络可能下载较慢，如有必要请连接代理下载）
 

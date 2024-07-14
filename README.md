@@ -71,7 +71,7 @@
 
 &emsp;&emsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn/ChatGpt/TikTok等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。
 
-👉[FASTLINK官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
+👉[MESL官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
 
 ## 八、[智连云（国内可直连）](https://zhilianyun.xyz/#/register?code=7wOIOjnh)
@@ -109,10 +109,9 @@
 
 ## 十二、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
 
-&emsp;&emsp;100+节点高端稳定大机场，含月付，也有“流量包”计费，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天，最低100G/12元。最新优惠码：sorrysorry，85折**
+&emsp;&emsp;100+节点高端稳定大机场，含月付，也有“流量包”计费，不限时间，不限设备，非月付年付，用多少算多少，可一直用，直到用完为止。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天，最低50G/12.8元。最新优惠码：sorrysorry，85折**
 
-👉[teacat官方网址入口1（需代理）](https://teacat.cloud/#/register?code=H3L7bmCz)  
-👉[teacat官方网址入口2](https://teacat1.com/#/register?code=H3L7bmCz)  
-👉[teacat官方网址入口3](https://teacat2.com/#/register?code=H3L7bmCz)
+👉[teacat官方网址入口](https://teacat.cloud/#/register?code=H3L7bmCz)  
+
 
 

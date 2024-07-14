@@ -46,11 +46,11 @@
 👉[SausageCloud官方网址入口](https://reborn.kaochang.ltd/#/register?code=dx2i5cif)
 
 
-## 四、[TapFog](https://tapfog.com/#/register?code=TCEXhxI9)
+## 四、[抖云加速](https://douyun.biz/#/register?code=1H1sqlEt)
 
-&emsp;&emsp;***注册完成即可免费体验***，HKBGP 直连/三网优化IEPL专线高端大机场，节点包括，港，台，美，日，新加坡，韩国，英国，德国，法国，印度，泰国等，流媒体解锁。**首次注册5小时全套餐体验，月最低 60G/12.8元，17.8即可享受200G大流量，流媒体支持**
+&emsp;&emsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。
 
-👉[TapFog官方网址入口](https://tapfog.com/#/register?code=TCEXhxI9)
+👉[抖云官方网址入口](https://douyun.biz/#/register?code=1H1sqlEt)
 
 
 ## 五、[Gatern](https://shuttle.gt-in.com/aff.php?aff=2437)
@@ -81,13 +81,13 @@
 👉[智连云官方网址入口](https://zhilianyun.xyz/#/register?code=7wOIOjnh)
 
 
-## 九、[速鹰666](https://sy7770.com/auth/register?code=Rpe0)
+## 九、[魔戒](https://mojie.info/#/register?code=kaPXUS5U)
 
-&emsp;&emsp;350+节点的全中转大机场，IPLC/BGP/CN2/GIA/Azure应有尽有，特殊时期稳定且高速，**月最低19.9，五一包年7折优惠代码：SUY 结束时间2024.5.29**，客服响应速度非常快，服务态度好。
+&emsp;&emsp;不限速，没有到期时间，不限制人数，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低可至 1 元**。
 
 一年、二年，72折优惠码：a1001 半年，77折优惠码：b1001
 
-👉[速鹰官方网址入口](https://sy7770.com/auth/register?code=Rpe0)
+👉[魔戒官方网址入口](https://mojie.info/#/register?code=kaPXUS5U)
 
 
 ## 十、[极客云](https://jikeq87.xyz/auth/register?code=8kiY)

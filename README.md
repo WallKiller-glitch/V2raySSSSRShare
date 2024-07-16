@@ -5,7 +5,7 @@
 
 机场小白？[新手教程戳这里](https://github.com/WallKiller-glitch/V2raySSSSRShare/tree/main/%E6%96%B0%E6%89%8B%E4%BD%BF%E7%94%A8%E6%95%99%E7%A8%8B)
 
-（Android/PC科学上网客户端：[科学上网客户端](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/%E7%A7%91%E5%AD%A6%E4%B8%8A%E7%BD%91%E5%AE%A2%E6%88%B7%E7%AB%AF%EF%BC%8C%E9%9C%80%E8%A6%81%E8%87%AA%E5%8F%96.md)）
+找不到工具？（Android/PC科学上网客户端：[科学上网客户端](https://github.com/WallKiller-glitch/V2raySSSSRShare/blob/main/%E7%A7%91%E5%AD%A6%E4%B8%8A%E7%BD%91%E5%AE%A2%E6%88%B7%E7%AB%AF%EF%BC%8C%E9%9C%80%E8%A6%81%E8%87%AA%E5%8F%96.md)）
 
 ------
 ### 写在前面的

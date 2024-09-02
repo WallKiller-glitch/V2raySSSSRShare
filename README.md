@@ -74,11 +74,11 @@
 👉[MESL官方网址入口](https://in.mesl.cloud/#/register?code=hRteYPbP)
 
 
-## 八、[智连云（国内可直连）](https://888tizi.com/#/register?code=7wOIOjnh)
+## 八、[智连云（国内可直连）](https://xinzhilian.xyz/#/register?code=7wOIOjnh)
 
 &emsp;&emsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。**月最低14，享受120G大流量，30享不限时大流量套餐150G**
 
-👉[智连云官方网址入口](https://888tizi.com/#/register?code=7wOIOjnh)
+👉[智连云官方网址入口](https://xinzhilian.xyz/#/register?code=7wOIOjnh)
 
 
 ## 九、[魔戒](https://mojie.info/#/register?code=kaPXUS5U)

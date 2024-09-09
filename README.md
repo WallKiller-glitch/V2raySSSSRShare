@@ -60,11 +60,11 @@
 👉[Gatern官方网址入口](https://shuttle.gt-all.com/aff.php?aff=2437)
 
 
-## 六、[EFCloud](https://www.easyfastcloud.com/#/register?code=kte30YEi)
+## 六、[EFCloud](https://inv.easyfastcloud.com/#/register?code=kte30YEi)
 
 &emsp;&emsp;三网优质线路高速稳定大机场，Azure Oracle 深度合作伙伴,稳定流媒体全解锁，节点包括，港，台，日，新加坡，美，俄罗斯，印度，韩，德，法，阿联酋，意大利，加拿大，沙特，澳大利亚，荷兰，以色列，西班牙，瑞士，英，瑞典，智利，巴西，土耳其，阿根廷，南非，**月最低100G/6元，也有25元100G不限时流量包套餐，用完即止；新用户8 折优惠券代码: new**。
 
-👉[EFCloud官方网址入口](https://www.easyfastcloud.com/#/register?code=kte30YEi)
+👉[EFCloud官方网址入口](https://inv.easyfastcloud.com/#/register?code=kte30YEi)
 
 
 ## 七、[M78星云](https://m78star.cloud/#/register?code=FBpboMz4)

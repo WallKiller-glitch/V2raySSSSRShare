@@ -95,11 +95,11 @@
 👉[CTC官方网址入口](https://www.ctc.run/#/register?code=JL5JdBdM)
 
 
-## 十一、[SPEEDCAT](https://github01.youbbv.com/auth/register?code=wEnH)
+## 十一、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
-&emsp;&emspAnycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，**白嫖优惠码：599_f3cz8bzm，中秋活动优惠码 ZHONGQIU**。
+&emsp;&emspAnycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，**白嫖优惠码：599_f3cz8bzm，中秋活动优惠码 JINQIU**。
 
-👉[SPEEDCAT官方网址入口](https://github01.youbbv.com/auth/register?code=wEnH)
+👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
 
 ## 十二、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)

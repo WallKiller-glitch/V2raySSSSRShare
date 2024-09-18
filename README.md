@@ -95,11 +95,11 @@
 👉[CTC官方网址入口](https://www.ctc.run/#/register?code=JL5JdBdM)
 
 
-## 十一、[Best VPN](https://Wjvj4.invitevp.com/#/register?code=4ygbpH7l)
+## 十一、[SPEEDCAT](https://github01.youbbv.com/auth/register?code=wEnH)
 
-&emsp;&emsp;独家Hysteria和Hysteria2协议，不限速，无审计,高速专线大机场， 不限时全部"纯流量"套餐，无月付季付年付，用多少算多少直到用完，节点包括：香港，台湾，日本，新加坡，美国，韩国，越南，俄罗斯，英国，印度，德国，英国，阿联酋，澳大利亚，加拿大，南非，瑞士，法国，荷兰，阿根廷，西班牙，瑞士，智利，意大利，墨西哥，以色列，巴西，土耳其。Netflix，Hulu，Disney+，Paramount等流媒体全解锁。解锁chatgpt。不限制设备数，特别独家支持微信客服为你解惑
+&emsp;&emspAnycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，**白嫖优惠码：599_f3cz8bzm，中秋活动优惠码 ZHONGQIU**。
 
-👉[Best VPN官方网址入口](https://Wjvj4.invitevp.com/#/register?code=4ygbpH7l)
+👉[SPEEDCAT官方网址入口](https://github01.youbbv.com/auth/register?code=wEnH)
 
 
 ## 十二、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)

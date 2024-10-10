@@ -46,11 +46,11 @@
 👉[SausageCloud官方网址入口](https://reborn.kaochang.ltd/#/register?code=dx2i5cif)
 
 
-## 四、[抖云加速](https://douyun.biz/#/register?code=1H1sqlEt)
+## 四、[NiceDuck](https://my.niceduck.io/register?code=g1axG9Gs)
 
-&emsp;&emsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速，全球25+热门国家，50+ 节点。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。**月最低15.88，128G大流量，国庆节八折优惠码： DOUYUN80**
+&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**NiceDuck周年庆全场7折，优惠码：niceduck777 , 有效期：2024年10月01日至2024年10月31日**
 
-👉[抖云官方网址入口](https://douyun.biz/#/register?code=1H1sqlEt)
+👉[NiceDuck官方网址入口](https://my.niceduck.io/register?code=g1axG9Gs)
 
 
 ## 五、[Gatern](https://shuttle.gt-in.com/aff.php?aff=2437)

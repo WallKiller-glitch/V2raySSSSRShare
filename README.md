@@ -81,11 +81,11 @@
 👉[智连云官方网址入口]](https://xinzhilian.xyz/register?code=7wOIOjnh)
 
 
-## 九、[魔戒](https://mojie.info/#/register?code=kaPXUS5U)
+## 九、[魔戒](https://mojie.co/register?aff=kaPXUS5U)
 
 &emsp;&emsp;不限速，没有到期时间，不限制人数，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低可至 1 元**。
 
-👉[魔戒官方网址入口](https://mojie.info/#/register?code=kaPXUS5U)
+👉[魔戒官方网址入口](https://mojie.co/register?aff=kaPXUS5U)
 
 
 ## 十、[CTC-02](https://www.ctc.run/#/register?code=JL5JdBdM)

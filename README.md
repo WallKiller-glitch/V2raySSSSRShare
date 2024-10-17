@@ -90,19 +90,26 @@
 
 ## 十、[CTC-02](https://www.ctc.run/#/register?code=JL5JdBdM)
 
-&emsp;&emsp;VLESS REALITY 协议高质量直连大机场，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，节点倍率低，常见 1 倍率，还有0.8，0.5，0.3，甚至 0 倍率节点可免费白嫖。Disney+，Netflix，Dazn，Hulu等流媒体全解锁，支持Chatgpt。套餐价格低至**年付15元，每月50G**。性价比极高，非常适合预算较低的童鞋
+&emsp;&emsp;VLESS REALITY 协议高质量直连大机场，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，节点倍率低，常见 1 倍率，还有0.8，0.5，0.3，甚至 0 倍率节点可免费白嫖。Disney+，Netflix，Dazn，Hulu等流媒体全解锁，支持Chatgpt。套餐价格低至**年付15元，每月50G**。性价比极高，非常适合预算较低且使用率不高的童鞋
 
 👉[CTC官方网址入口](https://www.ctc.run/#/register?code=JL5JdBdM)
 
 
 ## 十一、[FASTLINK](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
-&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，**白嫖优惠码：599_f3cz8bzm，国庆活动优惠码 75GUOQING**。
+&emsp;&emsp;Anycast全球加速技术，节点速度高达2Gbps，秒开4k、支持8K，IPLC，中转应有尽有，高峰期稳定，体验宛如身在海外，提供香/日/韩/台/新/美/俄/加/德/英/法/土/荷/印/阿根廷/澳大利亚/巴西等多国节点 全V2ray节点，高速稳定不怕墙，流媒体解锁，服务态度友好，提供美区APPleId，可以单独定制套餐VIP，现在注册即可白嫖三天体验套餐，**白嫖优惠码：599_f3cz8bzm**。
 
 👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
 
-## 十二、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
+## 十二、[抖云加速](https://douyun.biz/#/register?code=1H1sqlEt)
+
+&emsp;&emsp;高质量直连大机场，Netfilx、Disney+、Chat GPT等流媒体全解锁，全球 40+ 热门国家， 60+ 节点，独家SS-Obfs协议，支持多台设备同时使用，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，客服相当给力，最低**15.88/月，128G大流量**，所有节点都为1倍率
+
+👉[抖云官方网址入口](https://douyun.biz/#/register?code=1H1sqlEt)
+
+
+## 十三、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
 
 &emsp;&emsp;100+节点高端稳定大机场，IPEL企业级内网专线，月付最低不到12，拥有200G大流量。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 

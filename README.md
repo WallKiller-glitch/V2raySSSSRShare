@@ -48,7 +48,7 @@
 
 ## 四、[NiceDuck](https://my.niceduck.io/register?code=g1axG9Gs)
 
-&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**NiceDuck周年庆全场7折，优惠码：niceduck777 , 有效期：2024年10月01日至2024年10月31日**
+&emsp;&emsp;多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**NiceDuck周年庆全场7折，优惠码：niceduck777 , 有效期：2024年10月01日至2024年10月31日，新人8折优惠码：NiceDuck**
 
 👉[NiceDuck官方网址入口](https://my.niceduck.io/register?code=g1axG9Gs)
 

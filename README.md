@@ -34,7 +34,7 @@
 
 ## 二、[FsCloud](https://dash.996cloud.top/#/register?code=rsFPPHnq)
 
-&emsp;&emsp;初级机场，适合偶尔爬梯子的童鞋，Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，**新用户注册可免费试用 3 天100g流量，白菜价年付13元100G/月，相当nice**
+&emsp;&emsp;性价比No.1机场，超低价同时能保证速度稳定，Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，**新用户注册可免费试用 3 天100g流量，白菜价年付13元100G/月，相当nice**
 
 👉[FsCloud官方网址入口](https://dash.996cloud.top/#/register?code=rsFPPHnq)
 

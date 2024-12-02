@@ -102,14 +102,7 @@
 👉[FASTLINK官方网址入口](https://flafflnk01.flaff9.cc/auth/register?code=dzyz)
 
 
-## 十二、[抖云加速](https://douyun.biz/#/register?code=1H1sqlEt)
-
-&emsp;&emsp;高质量直连大机场，Netfilx、Disney+、Chat GPT等流媒体全解锁，全球 40+ 热门国家， 60+ 节点，独家SS-Obfs协议，支持多台设备同时使用，节点包括港，日，新加坡，美国，台湾，德国，英国，澳大利亚，尼日利亚等，客服相当给力，最低**15.88/月，128G大流量**，所有节点都为1倍率
-
-👉[抖云官方网址入口](https://douyun.biz/#/register?code=1H1sqlEt)
-
-
-## 十三、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
+## 十二、[teacat](https://teacat.cloud/#/register?code=H3L7bmCz)
 
 &emsp;&emsp;100+节点高端稳定大机场，IPEL企业级内网专线，月付最低不到12，拥有200G大流量。节点包括，港，台，美，日，新加坡，土耳其等。**注册即可免费试用三天**
 

@@ -67,11 +67,11 @@
 👉[EFCloud官方网址入口](https://inv.easyfastcloud.com/#/register?code=kte30YEi)
 
 
-## 七、[M78星云](https://m78star.cloud/#/register?code=FBpboMz4)
+## 七、[M78星云](https://m78.at/#/register?code=FBpboMz4)
 
 &emsp;&emsp;G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**每月 8 块以下**，新用户**7.8折优惠码：m78-22off，永久有效**
 
-👉[M78星云官方网址入口](https://m78star.cloud/#/register?code=FBpboMz4)
+👉[M78星云官方网址入口](https://m78.at/#/register?code=FBpboMz4)
 
 
 ## 八、[智连云](https://xinzhilian.xyz/register?code=7wOIOjnh)
